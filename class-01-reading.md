@@ -1,5 +1,6 @@
 
 [*Home*](https://nassir1976.github.io/reading-notes/)
+[*Home*](https://nassir1976.github.io/reading-notes/)
 
 
 # Growth Midset
